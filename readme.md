@@ -1,1 +1,1 @@
-Neki tekst bezveze.
+Ne valja ti ovo.
